@@ -1,1 +1,0 @@
-# FOR-BIBIII-3
